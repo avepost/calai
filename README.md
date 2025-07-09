@@ -11,6 +11,8 @@ I'm offering this entire website with Resell Rights License for a one time payme
 
 Setup help also included.
 
+# To purchase, email me here: thecoachorganic@gmail.com
+
 Here is my full collection of Ai websites, all I'm providing with Resell Rights License.
 
 ![download (1)](https://github.com/user-attachments/assets/6a15ea3f-77da-408d-b149-390061b8af10)
